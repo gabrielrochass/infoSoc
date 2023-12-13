@@ -1,0 +1,1 @@
+Resenha crítica de até duas páginas sobre Open Source para a disciplina de Informática e Sociedade (IF679) 2023.2 do Centro de Informática da UFPE
